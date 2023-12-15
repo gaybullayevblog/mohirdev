@@ -1,0 +1,2 @@
+# mohirdev
+mohirdev.uz darlar
